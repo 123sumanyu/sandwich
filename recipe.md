@@ -1,2 +1,0 @@
-Step 1 : In a small bowl, combine ketchup, mayonnaise, salt, and hot pepper sauce. Mix well. Meanwhile, toast bread in toaster. Spread mixture on all 4 slices of toast; set aside.
-Step 2 : Arrange lettuce leaves on the bread followed by 3 or 4 slices of tomato. Top with another piece of bread. Repeat with the other sandwich.
